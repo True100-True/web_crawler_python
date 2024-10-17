@@ -8,3 +8,5 @@ this project was born in 2023 so i am quater of my way 😊
 so only what you can do is wait for this project 
 (it will be in slovak language but output will be in english)
 (full relase of this project IN ENGLISH will be 2025 after indexing) 
+
+Discord server: 1296502072929157222
